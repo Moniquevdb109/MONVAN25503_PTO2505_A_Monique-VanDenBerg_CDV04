@@ -28,5 +28,5 @@ The completed cover letter includes:
 
 ## 🔗 Link to Cover Letter
 
-[My Google Docs Cover Letter](<https://docs.google.com/document/d/1t244XQ45jJhOXQ-hNU8vOxPx1izvpEjbZA7xXBFC4Qg/edit?tab=t.0>)
+[Cover Letter](<https://docs.google.com/document/d/1t244XQ45jJhOXQ-hNU8vOxPx1izvpEjbZA7xXBFC4Qg/edit?tab=t.0>)
 
